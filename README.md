@@ -7,11 +7,11 @@ Macintosh Plus - Floral Shoppe [wiki](https://en.wikipedia.org/wiki/Floral_Shopp
 
 Chuck Person - Eccojams vol.1 [wiki](https://en.wikipedia.org/wiki/Chuck_Person%27s_Eccojams_Vol._1) [youtube](https://www.youtube.com/watch?v=unN7QvSWSTo)
 
+Saint Pepsi - Hit Vibes [bandcamp](https://keatscollective.bandcamp.com/album/hit-vibes)
+
+Yung Bae - Bae and Japanese Disco Edits [bandcamp](https://yungbaebae.bandcamp.com/album/japanese-disco-edits)
+
 # links needed
-
-Saint Pepsi - Hit Vibes
-
-Yung Bae - Bae and Japanese Disco Edits
 
 Eco Virtual - Atmospheres 1 and 2
 
