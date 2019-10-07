@@ -5,9 +5,9 @@ Collection of all
 
 Macintosh Plus - Floral Shoppe [wiki](https://en.wikipedia.org/wiki/Floral_Shoppe) [bandcamp](https://vektroid.bandcamp.com/album/floral-shoppe)  
 
-# links needed
-
 Chuck Person - Eccojams vol.1 [wiki](https://en.wikipedia.org/wiki/Chuck_Person%27s_Eccojams_Vol._1) [youtube](https://www.youtube.com/watch?v=unN7QvSWSTo)
+
+# links needed
 
 Saint Pepsi - Hit Vibes
 
