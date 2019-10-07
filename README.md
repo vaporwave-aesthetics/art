@@ -13,7 +13,7 @@ Yung Bae - Bae and Japanese Disco Edits [bandcamp](https://yungbaebae.bandcamp.c
 
 # links needed
 
-Eco Virtual - Atmospheres 1 and 2
+Eco Virtual - Atmospheres 1 and 2 [bandcamp](https://ecovirtual.bandcamp.com/album/atmospheres-1)
 
 Blank Banshee -Blank Banshee 0
 
