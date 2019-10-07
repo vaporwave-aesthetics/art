@@ -13,21 +13,21 @@ Yung Bae - Bae and Japanese Disco Edits [bandcamp](https://yungbaebae.bandcamp.c
 
 Eco Virtual - Atmospheres 1 and 2 [bandcamp](https://ecovirtual.bandcamp.com/album/atmospheres-1)
 
+Macross 82-99 - A Million Miles Away [bandcamp](https://macross82-99.bandcamp.com/album/a-million-miles-away)
+
+Blank Banshee -Blank Banshee 0 [wiki](https://en.wikipedia.org/wiki/Blank_Banshee_0) [bandcamp](https://blankbanshee.bandcamp.com/album/blank-banshee-0)
+
 # fly with me 
 
 Wide Awake - Fragments [bandcamp](https://wawake.bandcamp.com/album/fragments)
 
 # links needed
 
-Blank Banshee -Blank Banshee 0
-
 Telepath - Beyond Reality
 
 Corp - Palm Mall
 
 groceries - Yes, We're Open!
-
-Macross 82-99 - A Million Miles Away
 
 Internet Club - Redefining The Workplace
 
