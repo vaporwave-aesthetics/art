@@ -3,13 +3,11 @@ Collection of all
 
 # classics
 
-Macintosh Plus [wiki](https://en.wikipedia.org/wiki/Floral_Shoppe) [bandcamp](https://vektroid.bandcamp.com/album/floral-shoppe)  
+Macintosh Plus - Floral Shoppe [wiki](https://en.wikipedia.org/wiki/Floral_Shoppe) [bandcamp](https://vektroid.bandcamp.com/album/floral-shoppe)  
+
+Chuck Person - Eccojams vol.1 [wiki](https://en.wikipedia.org/wiki/Chuck_Person%27s_Eccojams_Vol._1) [youtube](https://www.youtube.com/watch?v=unN7QvSWSTo)
 
 # links needed
-
-Mac + - Floral Shoppe
-
-Chuck Person - Eccojams vol.1
 
 Saint Pepsi - Hit Vibes
 
