@@ -17,6 +17,8 @@ Macross 82-99 - A Million Miles Away [bandcamp](https://macross82-99.bandcamp.co
 
 Blank Banshee -Blank Banshee 0 [wiki](https://en.wikipedia.org/wiki/Blank_Banshee_0) [bandcamp](https://blankbanshee.bandcamp.com/album/blank-banshee-0)
 
+Verktroid - Neo Cali [wiki](https://en.wikipedia.org/wiki/Neo_Cali) [bandcamp] (https://vektroid.bandcamp.com/album/neo-cali)
+ 
 # fly with me 
 
 Wide Awake - Fragments [bandcamp](https://wawake.bandcamp.com/album/fragments)
