@@ -1,7 +1,7 @@
 # art
 Collection of all 
 
-# classics
+# sailor babe
 
 Macintosh Plus - Floral Shoppe [wiki](https://en.wikipedia.org/wiki/Floral_Shoppe) [bandcamp](https://vektroid.bandcamp.com/album/floral-shoppe)  
 
@@ -11,9 +11,13 @@ Saint Pepsi - Hit Vibes [bandcamp](https://keatscollective.bandcamp.com/album/hi
 
 Yung Bae - Bae and Japanese Disco Edits [bandcamp](https://yungbaebae.bandcamp.com/album/japanese-disco-edits)
 
-# links needed
-
 Eco Virtual - Atmospheres 1 and 2 [bandcamp](https://ecovirtual.bandcamp.com/album/atmospheres-1)
+
+# fly with me 
+
+Wide Awake - Fragments [bandcamp](https://wawake.bandcamp.com/album/fragments)
+
+# links needed
 
 Blank Banshee -Blank Banshee 0
 
