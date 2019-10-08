@@ -35,7 +35,7 @@ Internet Club - Redefining The Workplace
 
 EDIT: Adding a few more since I forgot them.
 
-Infinity Frequencies - Computer Decay and Computer Death
+Infinity Frequencies - Computer Decay [bandcamp](https://computer-gaze.bandcamp.com/album/computer-decay) and Computer Death [bandcamp](https://computer-gaze.bandcamp.com/album/computer-death)
 
 New Dreams Ltd. - Initiation Tape: Isle of Avalon Edition
 
