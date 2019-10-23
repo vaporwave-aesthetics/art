@@ -20,6 +20,8 @@ Blank Banshee -Blank Banshee 0 [wiki](https://en.wikipedia.org/wiki/Blank_Banshe
 Vektroid - Neo Cali [wiki](https://en.wikipedia.org/wiki/Neo_Cali) [bandcamp](https://vektroid.bandcamp.com/album/neo-cali)
 
 James Ferraro - Far Side Virtual [wiki](https://en.wikipedia.org/wiki/Far_Side_Virtual) [bandcamp](https://jjamesferraro.bandcamp.com/)
+
+Luxury Elite - Noir [bandcamp](https://luxuryelite.bandcamp.com/album/noir)
   
 # fly with me 
 
