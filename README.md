@@ -22,6 +22,9 @@ Vektroid - Neo Cali [wiki](https://en.wikipedia.org/wiki/Neo_Cali) [bandcamp](ht
 James Ferraro - Far Side Virtual [wiki](https://en.wikipedia.org/wiki/Far_Side_Virtual) [bandcamp](https://jjamesferraro.bandcamp.com/)
 
 Luxury Elite - Noir [bandcamp](https://luxuryelite.bandcamp.com/album/noir)
+
+Giant Claw - Soft Channel [bandcamp](https://giantclaw.bandcamp.com/album/soft-channel)
+
   
 # fly with me 
 
